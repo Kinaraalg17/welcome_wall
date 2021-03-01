@@ -1,1 +1,2 @@
 Kinara
+Kinara al Ghiffari
